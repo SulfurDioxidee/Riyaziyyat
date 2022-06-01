@@ -1,0 +1,2 @@
+# Riyaziyyat
+Made by: HikmetRamazanov
